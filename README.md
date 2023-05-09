@@ -30,8 +30,8 @@ https://portalpopclub.com.br/redes-sociais/glauciele-smity/
 
 https://www.jairsampaio.com/influenciadora-com-4-milhoes-de-seguidores-e-presa-por-incentivar-massacre-em-escolas/
 
-*
-*
+
+
 
 # PETER:
 
